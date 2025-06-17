@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, my name is Wiktor<br>I am currently studying my first year at the Wyższa Szkoła Ekonomii i Informatyki.
+Hi, my name is Wiktor<br>I am currently studying my first year at the Wyższa Szkoła Ekonomii i Informatyki in Cracow.
 
 
 ## 🌐 Socials:
