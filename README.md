@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, my name is Wiktor<br>I am currently studying my second year at the Wyższa Szkoła Ekonomii i Informatyki in Cracow.
+Hi, my name is Wiktor<br>I am currently studying my third year at the Uniwersytet DSW Ideis Kraków.
 
 
 ## 🌐 Socials:
